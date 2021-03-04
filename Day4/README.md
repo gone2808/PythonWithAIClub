@@ -1,0 +1,2 @@
+[Record](https://meet.google.com/exz-gpnv-ncy?fbclid=IwAR3l4scxp4BmJg_Ro4Gi2mo-6thiBq1RzvfVxtMpjri5pJOA38HH2aZKmCA)
+[Slide](https://docs.google.com/presentation/d/1KABay9HBuCPJpn68GRwBkwn0QAdL4kjpluDmbnIsauc/edit?usp=sharing&fbclid=IwAR1aLpbzDJwB6YuYD_egKTrfmKVBg3r7N1Ytb1j8qngzVt6f5nxTTvWmKxc)
