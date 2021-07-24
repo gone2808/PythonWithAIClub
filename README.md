@@ -1,1 +1,1 @@
-# PythonWithAIClub
+# Linear Regression
